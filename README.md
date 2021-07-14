@@ -1,2 +1,2 @@
-# For-D-ng-s---le--ss--Say--Hesab-
+# For-Dongusu-ile-ussu-Sayi-Hesabi
 Patika Ödevi
